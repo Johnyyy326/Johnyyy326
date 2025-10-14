@@ -47,7 +47,7 @@ Ich finde es spannend, Dinge selbst zu erstellen und dabei immer besser zu werde
 ### 📃 Meine Links
 - 💬 [Discord](https://discord.gg/kroleplay))  
 - 🧠 [FiveM Server](http://klrp.de) 
-- 🖥️ [Personal Website] 
+- 🖥️ [Personal Website](https://e-z.bio/johny)
 
 
 ⭐ **Danke, dass du vorbeischaust!**
